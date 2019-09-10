@@ -1,1 +1,1 @@
-![No scam](https://downloadmoreram.com/)
+[No scam](https://downloadmoreram.com/)
